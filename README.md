@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **adesuwanosaogie@gmail.com**
 
-- ⚡ Fun fact **I do photography**
+- ⚡ Fun fact **I'm a photographer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
